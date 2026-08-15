@@ -1,10 +1,11 @@
 # hi...
 
 
+Aug 15, 2026
 
 
 Kurniawan, future cybersecurity expert
-Aug 15, 2026
+
 
 Allow me to introduce myself. My name is Kurniawan, born in Karimun Regency, Riau Islands, on November 29, 2005. As the eldest child, I’ve always moved at my own pace.
 
